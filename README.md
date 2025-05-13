@@ -1,7 +1,8 @@
 - 👋 Hi, I’m @BossuSika24
 - 👀 I’m interested in the WhatsApp bot 
 - 🌱 I’m currently learning the WhatsApp bot 
-- 💞️ I’m looking to collaborate on everyone
+- 💞️ I’m looking to collaborate with
+everyone
 - 📫 How to reach me 0257248987 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
