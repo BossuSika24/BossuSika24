@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning the WhatsApp bot 
 - 💞️ I’m looking to collaborate with
 everyone
-- 📫 How to reach me 0257248987 
+- 📫 How to reach me +233257248987 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
